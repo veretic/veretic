@@ -9,7 +9,7 @@
 
 - 🤳🏾 I’m also studying **Product Design**
 
-- 🤍 Fun fact **I'm also into quantum physics**
+- 🤍 Fun fact: **I'm also into quantum physics**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
